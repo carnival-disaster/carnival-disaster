@@ -1,13 +1,9 @@
-**MY NAME'S DJ RADICAL AND I'M FUCKING AMAZING**
+**I'M SENDING THREATS!!!!!!!!!!!**
 
-- I GO BY IT/ITS PRONOUNS AND I'M AGENDER.
-- I HAVE NO DNI BUT AVOID ME IF YOU'RE SENSITIVE AND CAN'T TAKE A JOKE.
-- I LIKE (MAINLY) THE BATTLE BRICKS, ENFOSI, ADOPT ME, BEE SWARM SIMULATOR, BLUD OBBY, DIE OF DEATH, MINUS ELEVATION, DEPTH SPELUNKING, IN PLAIN SIGHT 2 AND OTHER GAMES!!!!
-- I SAY SLURS THAT I CAN RECLAIM, IF YOU DON'T LIKE THAT BLOCK ME!!!
-- I'M WOKE AS FUCK!!!!
-- I'M DISABLED AND MENTALLY UNSTABLE. DON'T GET MAD OVER SHIT I CAN'T CONTROL.
-- I DON'T CARE ABOUT SHIPPING DISCOURSE, PLEASE STFU ABOUT IT.
-- I TALK ABOUT SEXUAL/INNAPROPRIATE TOPICS AND SWEAR A LOT OF TIMES. LMK IF I SHOULD TONE IT DOWN.
-- PLEASE BE MY FRIEND I'M LONELY AS FUCK!!!!!
-
-![](https://i.postimg.cc/LX7GxWL9/Funk1d-Teaser.webp)
+- call me tumored, blondie or radical
+- STRICTLY. it/its pronouns, don't like it block me.
+- slur spammer 200, all the slurs i say i can reclaim.
+- disabled, both physically and mentally, interact with caution
+- i make sexual jokes, if you don't like it lmk
+- if you're one of those "proud proshipper/antishipper" retards dni, i don't CARE about shipping discourse, it makes me uncomfortable
+- i like: the battle bricks, color cruelty/blud obby, enfosi, raigforce 1 & 2, sol's rng, adopt me and minus elevation.
