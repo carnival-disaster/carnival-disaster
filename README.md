@@ -7,3 +7,5 @@
 - i make sexual jokes, if you don't like it lmk
 - if you're one of those "proud proshipper/antishipper" retards dni, i don't CARE about shipping discourse, it makes me uncomfortable
 - i like: the battle bricks, color cruelty/blud obby, enfosi, raigforce 1 & 2, sol's rng, adopt me and minus elevation.
+
+![](https://i.postimg.cc/QMfR9vxS/image-81.png)
