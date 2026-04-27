@@ -1,7 +1,7 @@
 **"A month later, we came to this conclusion: There was no such “beast” in the forest."**
 
 - call me tumored/tb, blondie, apocalypse bird, oppression or radical
-- STRICTLY. it/its pronouns, don't like it block me.
+- STRICTLY. it/its pronouns, don't like it block me. **DO NOT REFER TO ME WITH FEMALE TERMS. ONLY MASCULINE/NEUTRAL. I'M AGENDER & TRANSMASC.**
 - slur spammer 200, all the slurs i say i can reclaim.
 - i'm disabled, both physically and mentally, please be patient with me
 - i make sexual jokes, if you don't like it lmk
