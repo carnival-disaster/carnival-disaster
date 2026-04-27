@@ -1,4 +1,4 @@
-**Is it time to wake up?**
+**"A month later, we came to this conclusion: There was no such “beast” in the forest."**
 
 - call me tumored/tb, blondie, apocalypse bird, oppression or radical
 - STRICTLY. it/its pronouns, don't like it block me.
