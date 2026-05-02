@@ -5,7 +5,7 @@
 - i say slurs sometimes. **ALL** the slurs i say i can reclaim.
 - i'm disabled, both physically and mentally, please be patient with me
 - i make sexual jokes, if you don't like it lmk
-- dni if you revolve your entire personaloty around being a proshipper/antishipper. shipping discourse makes me uncomfortable a lot.
+- dni if you revolve your entire personality around being a proshipper/antishipper. shipping discourse makes me uncomfortable a lot.
 - i like: the battle bricks, sol's rng, lobotomy corporation, color cruelty/blud obby, enfosi, raigforce 1 & 2, the "tsunami game", adopt me, pokemon, depth spelunking & minus elevation.
 
 [![It's the monster!! Big terrible monster lives in the dark, black forest!](https://i.postimg.cc/rpX03xS9/255df16b21e707e983a4a5aeed6402ac.jpg)](https://postimg.cc/874zrFXF)
